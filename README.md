@@ -31,7 +31,7 @@
 
 ### 📫 Connect with Me  
 - **LinkedIn:** [linkedin.com/in/contactavantisakhare](https://linkedin.com/in/contactavantisakhare)  
-- **Email:** avanti@example.com (replace with your actual email)
+- **Email:** avantisakhare@gmail.com
 
 ---
 ⭐️ *“Turning application support data into actionable insights.”*
